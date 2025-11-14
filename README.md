@@ -3,4 +3,4 @@
   <img src="https://i.gifer.com/7VE.gif" width="100%" />
 </p>
 
-## <p align="center">👾 Y h a n z k i e — Code Mer
+## <p align="center">👾 S U P E R _ D E A D P O O L — Code Merc
